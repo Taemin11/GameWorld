@@ -1,3 +1,6 @@
+# 기여한 부분 
+https://www.notion.so/Steam-World-e821b214fcdc40d38c871c2903813818
+
 # **Steam World!**
 
 
